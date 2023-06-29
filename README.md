@@ -1,2 +1,0 @@
-# BI
-atividade da faculdade
